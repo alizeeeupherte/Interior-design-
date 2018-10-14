@@ -2,6 +2,8 @@
 
 ### Charming parisian flat near Le Luxembourg 
 
+The personalisation of a place feeds on objects brought back from travels.
+
 ![](1.png?raw=true)
 
 ![](2.png?raw=true)
